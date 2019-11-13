@@ -1,5 +1,1 @@
-
-kanda + green chutni
-
-butter chicken
-
+butter chickenkanda + green chutney
